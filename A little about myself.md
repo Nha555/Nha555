@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Nha555 
+- 👀 I'm interested in games and entertainment platforms 
+- 🌱 I’m currently learning things at school
